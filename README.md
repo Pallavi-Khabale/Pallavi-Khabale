@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=pallavi-khabale&label=Profile%20views&color=0e75b6&style=flat" alt="pallavi-khabale" /> </p>
 
-- 👨‍💻 All of my projects are available at [GitHub](link)
+- 👨‍💻 All of my projects are available at [GitHub](https://github.com/Pallavi-Khabale?tab=repositories)
 
 - 📝 I regularly write articles on [medium link](medium link)
 
