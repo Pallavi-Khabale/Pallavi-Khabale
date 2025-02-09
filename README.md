@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **pallavikhabale40@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1v1eIfkgNe-QQ-aPpwkcmBcJEiw5BHbEQ/view?usp=drive_link](Resume)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1v1eIfkgNe-QQ-aPpwkcmBcJEiw5BHbEQ/view?usp=drive_link)
 
 - ⚡ Fun fact **Avid fan of K-pop, K-dramas and anime**
 
