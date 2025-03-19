@@ -5,11 +5,11 @@
 
 - 👨‍💻 All of my projects are available at [GitHub](https://github.com/Pallavi-Khabale?tab=repositories)
 
-- 📝 I regularly write articles on [medium link](medium link)
+- 📝 I regularly write articles on [medium link](https://pallavikhabale.medium.com/)
+
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1WA9KiNZnWDF57Z23xhYAjm-g2PooNhf4/view?usp=drive_link)
 
 - 📫 How to reach me **pallavikhabale40@gmail.com**
-
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1v1eIfkgNe-QQ-aPpwkcmBcJEiw5BHbEQ/view?usp=drive_link)
 
 - ⚡ Fun fact **Avid fan of K-pop, K-dramas and anime**
 
