@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [Medium](https://pallavikhabale.medium.com/)
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1WA9KiNZnWDF57Z23xhYAjm-g2PooNhf4/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/16_0LUBOeP4ayeC3hEt62rPipzu-uK3WD/view?usp=drive_link)
 
 - 📫 How to reach me **pallavikhabale40@gmail.com**
 
