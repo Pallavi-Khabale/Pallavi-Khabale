@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [GitHub](https://github.com/Pallavi-Khabale?tab=repositories)
 
-- 📝 I regularly write articles on [medium link](https://pallavikhabale.medium.com/)
+- 📝 I regularly write articles on [Medium](https://pallavikhabale.medium.com/)
 
 - 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1WA9KiNZnWDF57Z23xhYAjm-g2PooNhf4/view?usp=drive_link)
 
